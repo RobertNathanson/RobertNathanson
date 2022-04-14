@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on ...a New Venture
 - 📫 How to reach me ...via emaail is best
 - 🏆 Former Mr.|Ms. Silicon Valley Man of the Year (HackCancerSF & LLS)
-- Featured in AlwaysOn Global 100 Coompanies to Watch
-- OpenTreatment announced that it has been chosen by AlwaysOn as one of the AlwaysOn Global 100 “Companies to Watch” winners. Inclusion in the AlwaysOn Global 100 “Companies to Watch” signifies leadership amongst its peers and game-changing approaches and technologies that are likely to disrupt existing markets and entrenched players in the Global Silicon Valley. OpenTreatment was specially selected by the AlwaysOn editorial team and industry experts spanning the globe based on a set of five criteria: innovation, market potential, commercialization, stakeholder value, and media buzz.
+- 📙 Featured in AlwaysOn Global 100 Coompanies to Watch
+OpenTreatment announced that it has been chosen by AlwaysOn as one of the AlwaysOn Global 100 “Companies to Watch” winners. Inclusion in the AlwaysOn Global 100 “Companies to Watch” signifies leadership amongst its peers and game-changing approaches and technologies that are likely to disrupt existing markets and entrenched players in the Global Silicon Valley. OpenTreatment was specially selected by the AlwaysOn editorial team and industry experts spanning the globe based on a set of five criteria: innovation, market potential, commercialization, stakeholder value, and media buzz.
 
 This exclusive event gathers the brightest minds for a lively exchange on the top trends; along with identifying the most promising entrepreneurial opportunities and investments in the global tech industry.
 
