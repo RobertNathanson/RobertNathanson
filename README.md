@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...new Life Skills
 - 💞️ I’m looking to collaborate on ...a New Venture
 - 📫 How to reach me ...via emaail is best
-- 🏆 Former Mr.|Ms. Silicon Man of the Year (HackCancerSF & LLS)
+- 🏆 Former Mr.|Ms. Silicon Valley Man of the Year (HackCancerSF & LLS)
 
 <!---
 RobertNathanson/RobertNathanson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
